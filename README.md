@@ -1,2 +1,2 @@
-# AsymptoticLine.github.io
+# AsymptoticLine.io
 就您™问题多？
